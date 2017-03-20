@@ -9,4 +9,8 @@ Streets that follow like a tedious argument
 Of insidious intent 
 To lead you to an overwhelming question ... 
 Oh, do not ask, “What is it?” 
-Let us go and make our visit. 
+Let us go and make our visit.
+
+In the room the women come and go 
+Talking of Michelangelo. 
+
